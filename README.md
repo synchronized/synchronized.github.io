@@ -1,2 +1,2 @@
 # synchronized.github.io
-群龙无首 天下大吉
+人无伪性不能自美
